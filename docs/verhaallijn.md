@@ -7,3 +7,7 @@ Ze begint in de benedenstad, waar ze met hulp van haar vriend Lutz en de koopman
 Later wordt Myne geadopteerd door Sylvester, de Aub van Ehrenfest, en krijgt ze de naam Rozemyne. Als lid van de hertogelijke familie moet ze leren omgaan met de politieke intriges van de adel. Ze breidt haar invloed uit door nieuwe uitvindingen en hervormingen, maar maakt ook vijanden, zoals de corrupte hogepriester Bezewanst.
 
 Het verhaal draait om Myne's vastberadenheid om boeken toegankelijk te maken voor iedereen, en om de manier waarop ze met haar kennis uit haar vorige leven de wereld om haar heen verandert.
+
+## Thema's
+
+De serie behandelt thema's als sociale ongelijkheid, de waarde van kennis, en de spanning tussen traditie en vooruitgang. Myne's strijd om boeken toegankelijk te maken is ook een strijd tegen de aristocratie die kennis achterhoudt.
